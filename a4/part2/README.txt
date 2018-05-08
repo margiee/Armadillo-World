@@ -1,7 +1,3 @@
-Yi Jun (Margaret) Yao
-50945161
-r7d1b
-
 Skybox downloaded from: 
 http://www.custommapmakers.org/skyboxes.php
 
